@@ -1,4 +1,5 @@
-I_s ardianta he_e
-C++ C# java
-a pyth_n hater
-alg_rythm god
+Ardianta here.
+C++ C# Java.
+Python hater.
+Worst variable namer.
+Algorythm god.
